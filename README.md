@@ -7,7 +7,7 @@ My goal is to make my mark in this exciting and dynamic journey while continuous
 - 💼 If you’re interested in collaborating, please feel free to reach out to me through the contact methods.
 I’d be happy to assist you!💬
 
-- [Email](miladrezaei522@gmail.com) . [Telegram](https://t.me/millad_jahed) . [Instagram](https://instagram.com/millad_jahed) 
+- [Email](mailto:miladrezaei522@gmail.com) . [Telegram](https://t.me/millad_jahed) . [Instagram](https://instagram.com/millad.jahed) 
 
  
 

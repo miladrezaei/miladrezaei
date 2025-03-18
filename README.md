@@ -20,5 +20,3 @@ I’d be happy to assist you!💬
 
 <p align="center"> <img src="https://github-readme-stats.vercel.app/api?username=miladrezaei&show_icons=true&theme=gotham" alt="samogii" />
 
-Config files for my GitHub profile.
-
